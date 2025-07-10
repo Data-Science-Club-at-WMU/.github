@@ -21,11 +21,12 @@ Interested in membership or officer roles? Complete our Google Form:
 
 [https://forms.gle/QCWAfYcTjjGwTHFc7](https://forms.gle/QCWAfYcTjjGwTHFc7)
 
-When you fill out the form, let us know if you’re applying for an officer position.
+When you fill out the form, let us know if you’re also interested in an officer position.
 
 ## Contact
 
 * **President:** Cody Thornell
+* **Vice President** Aiden Kim
 * **Website:** [https://dscwmu.org](https://dscwmu.org)
 
 \--
